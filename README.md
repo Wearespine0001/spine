@@ -6,7 +6,7 @@ In this blog, we’ll explore the causes, symptoms, and treatment options for sc
 
 ## What Causes Sciatica?
 
-The [**sciatica**](https://wearespine.in/sciatica-treatment-home/) nerve is the largest nerve in the human body. When it becomes irritated or compressed, it can cause pain, numbness, or tingling sensations. Here are the most common causes:
+The sciatic nerve is the largest nerve in the human body. When it becomes irritated or compressed, it can cause pain, numbness, or tingling sensations. Here are the most common causes:
 
 ### 1. Herniated Disc
 A herniated or slipped disc occurs when one of the rubbery cushions between your vertebrae in the spine (discs) slips out of place, pressing against the sciatic nerve. This is one of the most common causes of sciatica.
@@ -86,7 +86,7 @@ If you experience any of the following symptoms, it’s important to consult a h
 
 If you’re suffering from sciatica, consulting a spine specialist is crucial to get a proper diagnosis and treatment plan. Top spine surgeons like **Dr. Shekhar Bhojraj**, **Dr. Abhay Nene**, and **Dr. Sheetal Mohite** in Mumbai specialize in treating sciatica and related spine issues. They can guide you through the best treatment options for long-term relief.
 
-For more information on sciatica treatment, visit [**We Are Spine**](https://wearespine.in/).
+For more information on sciatica treatment, visit [**We Are Spine - Sciatica Treatment at Home**](https://wearespine.in/sciatica-treatment-home/).
 
 ## Conclusion
 
