@@ -84,9 +84,9 @@ If you experience any of the following symptoms, it’s important to consult a h
 
 ## Consulting a Spine Specialist
 
-If you’re suffering from sciatica, consulting a spine specialist is crucial to get a proper diagnosis and treatment plan. Top spine surgeons like **Dr. Shekhar Bhojraj**, **Dr. Abhay Nene**, and **Dr. Sheetal Mohite** in Mumbai specialize in treating sciatica and related spine issues. They can guide you through the best treatment options for long-term relief.
+If you’re suffering from sciatica, consulting a spine specialist is crucial to get a proper diagnosis and treatment plan. Top spine surgeons like **[Dr. Shekhar Bhojraj](https://wearespine.in/dr-shekhar-bhojraj/)**, **[Dr. Abhay Nene](https://wearespine.in/dr-abhay-nene/)**, and **Dr. Sheetal Mohite** in Mumbai specialize in treating sciatica and related spine issues. They can guide you through the best treatment options for long-term relief.
 
-For more information on sciatica treatment, visit [**We Are Spine - Sciatica Treatment at Home**](https://wearespine.in/sciatica-treatment-home/).
+For more information on sciatica treatment, visit [**We Are Spine - Sciatica Treatment at Home**](https://wearespine.in/sciatica-treatment-home/) or [**We Are Spine**](https://wearespine.in).
 
 ## Conclusion
 
